@@ -1,0 +1,1 @@
+# Mathematical-Modeling-and-Analysis-of-Cantilever-Beams-with-Non-Ideal-Clamps-
